@@ -13,5 +13,5 @@
 ## Hoping we'll get better soon
 
 > There should be laughter after pain, <br/>
-> There should sunshine after rain, <br/>
+> There should be sunshine after rain, <br/>
 > These things have always be the same.
