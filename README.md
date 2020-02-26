@@ -14,4 +14,4 @@
 
 > There should be laughter after pain, <br/>
 > There should be sunshine after rain, <br/>
-> These things have always be the same.
+> These things have always been the same.
